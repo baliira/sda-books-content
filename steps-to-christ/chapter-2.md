@@ -23,7 +23,7 @@ heaven, it would have no joy for him. The spirit of unselfish love
 that reigns there—every heart responding to the heart of Infinite
 Love—would touch no answering chord in his soul. His thoughts,
 his interests, his motives, would be alien to
-
+PG 17
 those that actuate the sinless dwellers there. He would be a
 discordant note in the melody of heaven. Heaven would be to him
 a place of torture; he would long to be hidden from Him who is its
@@ -48,7 +48,7 @@ The Saviour said, “Except a man be born from above,” unless he
 shall receive a new heart, new desires, purposes, and motives, leading
 to a new life, “he cannot see the kingdom of God.” John 3:3, margin.
 The idea that it is necessary only to develop the good that
-
+PG 18
 exists in man by nature, is a fatal deception. “The natural man
 receiveth not the things of the Spirit of God: for they are foolishness
 unto him: neither can he know them, because they are spiritually
@@ -74,7 +74,7 @@ Many are the figures by which the Spirit of God has sought to
 illustrate this truth, and make it plain to souls that long to be freed
 from the burden of guilt. When, after his sin in deceiving Esau, Jacob
 fled from his father’s home, he was weighed down with a sense
-
+PG 19
 of guilt. Lonely and outcast as he was, separated from all that had
 made life dear, the one thought that above all others pressed upon
 his soul, was the fear that his sin had cut him off from God, that he
@@ -100,7 +100,7 @@ again linked with heaven. With His own merits, Christ has bridged
 the gulf which sin had made, so that the ministering angels can hold
 communion with man. Christ connects fallen man in his weakness
 and helplessness with the Source of infinite power.
-
+PG 20
 But in vain are men’s dreams of progress, in vain all efforts for
 the uplifting of humanity, if they neglect the one Source of hope and
 help for the fallen race. “Every good gift and every perfect gift”
@@ -126,7 +126,7 @@ encouragements to urge us to give the heart’s loving service to our
 Creator and Redeemer?
 And, on the other hand, the judgments of God pronounced
 against sin, the inevitable retribution, the
-
+PG 21
 degradation of our character, and the final destruction, are presented
 in God’s word to warn us against the service of Satan.
 Shall we not regard the mercy of God? What more could He
@@ -135,3 +135,4 @@ with amazing love. Let us avail ourselves of the means provided for
 us that we may be transformed into His likeness, and be restored to
 fellowship with the ministering angels, to harmony and communion
 with the Father and the Son.
+PG 22

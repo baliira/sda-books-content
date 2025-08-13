@@ -22,7 +22,7 @@ difficulties and trials that make his life one of toil and care—were
 appointed for his good as a part of the training needful in God’s plan
 for his uplifting from the ruin and degradation that sin has wrought.
 The
-
+PG 9
 world, though fallen, is not all sorrow and misery. In nature itself are
 messages of hope and comfort. There are flowers upon the thistles,
 and the thorns are covered with roses.
@@ -48,7 +48,7 @@ to reveal Himself to us. Yet these but imperfectly represent His
 love. Though all these evidences have been given, the enemy of good
 blinded the minds of men, so that they looked upon God with fear;
 they thought of
-
+PG 10
 Him as severe and unforgiving. Satan led men to conceive of God as
 a being whose chief attribute is stern justice,—one who is a severe
 judge, a harsh, exacting creditor. He pictured the Creator as a being
@@ -75,7 +75,7 @@ villages where there was not a moan of sickness in any house, for
 He had passed through them and healed all their sick. His work gave
 evidence of His divine anointing. Love, mercy, and compassion were
 revealed in every act of
-
+PG 11
 His life; His heart went out in tender sympathy to the children of
 men. He took man’s nature, that He might reach man’s wants. The
 poorest and humblest were not afraid to approach Him. Even little
@@ -101,7 +101,7 @@ the character of God. It is from the Father’s heart that the streams
 of divine compassion, manifest in Christ, flow out to the children of
 men. Jesus, the tender, pitying Saviour, was God “manifest in the
 flesh.” 1 Timothy 3:16.
-
+PG 12
 It was to redeem us that Jesus lived and suffered and died. He
 became “a Man of Sorrows,” that we might be made partakers of
 everlasting joy. God permitted His beloved Son, full of grace and
@@ -128,7 +128,7 @@ Christ was the medium through which He could pour out His infinite
 love upon a fallen world. “God was in Christ, reconciling the world
 unto Himself.” 2 Corinthians 5:19. God suffered with His Son. In
 the agony of Gethsemane, the death of
-
+PG 13
 Calvary, the heart of Infinite Love paid the price of our redemption.
 Jesus said, “Therefore doth My Father love Me, because I lay
 down My life, that I might take it again.” John 10:17. That is,
@@ -154,7 +154,7 @@ through eternal ages one with the race He has redeemed—the Son
 of man. And all this that man might be uplifted from the ruin and
 degradation of sin that he might reflect the love of God and share the
 joy of holiness.
-
+PG 14
 The price paid for our redemption, the infinite sacrifice of our
 heavenly Father in giving His Son to die for us, should give us
 exalted conceptions of what we may become through Christ. As the
@@ -179,3 +179,4 @@ in the light of the cross, the more we see mercy, tenderness, and
 forgiveness blended with equity and justice, and the more clearly we
 discern innumerable evidences of a love that is infinite and a tender
 pity surpassing a mother’s yearning sympathy for her wayward child.
+PG 15
